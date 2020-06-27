@@ -10,3 +10,8 @@ Wenn wir wenigstens einen Teil seiner Ideen schon h채tten Wirklichkeit werden k�
 * Hilfsbereit
 * G체tig
 * l채sst sich leicht ausnutzen
+
+Wie Daniel D체sentrieb immer sagt:
+
+> Ich schaue mal eben bei meinen unn체tzen Erfindungen,
+> ob da das Richtige f체r Sie dabei ist.

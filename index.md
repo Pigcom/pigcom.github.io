@@ -15,3 +15,5 @@ Wie Daniel Düsentrieb immer sagt:
 
 > Ich schaue mal eben bei meinen unnützen Erfindungen,
 > ob da das Richtige für Sie dabei ist.
+
+<img src="https://cdn.pixabay.com/photo/2013/06/08/14/03/daniel-nozzle-drive-123206_960_720.jpg"/>
